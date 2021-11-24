@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Maxine @MaxineInSECDIV
-- 👀 I’m interested in freediving and outdoor activities, and now I start an insane idea to chase a chance to change my world.
+- 👀 I’m interested in freediving and outdoor activities, and now Evan and I start an insane idea to chase a chance to change our world.
 - 📫 YOU can reach me with my email : maxine@secdiv.com.tw 
 - ✨ Have a good day!!!Let's work hard and play more hard!!
 
